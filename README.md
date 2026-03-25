@@ -1,16 +1,19 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**milkering/milkering** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ![](https://files.catbox.moe/44his9.webp)
 
-Here are some ideas to get you started:
+![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=miikering.231284521&left_color=black&right_color=black&left_text=apples%20fallen)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://files.catbox.moe/5illnp.gif)
+<details>
+<summary> 𝚏𝚢𝚒 </summary>
+ᴏꜰᴛᴇɴ ᴏꜰꜰᴛᴀʙ || ᴘʟᴇᴀꜱᴇ ᴀᴘᴘʀᴏᴀᴄʜ ꜰɪʀꜱᴛ, ɪ'ᴍ ᴠᴇʀʏ ꜱʜʏ || ᴀᴡᴋᴡᴀʀᴅ
+</details>
+<details>
+<summary> 𝚍𝚗𝚒 </summary>
+ᴜɴᴅᴇʀ 15 ɪᴡᴇᴄ || ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴀ ᴡᴇɪʀᴅᴏ
+</details>
+
+![](https://files.catbox.moe/qvtzef.gif)
+
+[⤿ 𝚙𝚛𝚗𝚜](https://en.pronouns.page/@miikering) | [⤿ 𝚜𝚝𝚛𝚊𝚠](https://gregging-it.straw.page) | [⤿ 𝚊𝚝𝚊](https://miikering.atabook.org/)
