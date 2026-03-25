@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![](https://files.catbox.moe/44his9.webp)
+  ![](https://files.catbox.moe/ssxeph.webp)
 
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=miikering.231284521&left_color=black&right_color=black&left_text=apples%20fallen)
 
